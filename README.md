@@ -1,0 +1,1 @@
+For a chocolate chip cookie, you need to have some chocolate chip and some flour. This is for 24 chocolate chip cookies. 
